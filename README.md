@@ -1,1 +1,1 @@
-# rsschool-cv
+https://makarow50.github.io/rsschool-cv/
